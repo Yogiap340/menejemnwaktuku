@@ -1,0 +1,2 @@
+# menejemnwaktuku
+pasti bisa
